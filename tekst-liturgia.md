@@ -229,3 +229,59 @@ Chryste, wysłuchaj nas.	Chryste, wysłuchaj nas.
 
 
 
+Ksiądz Arcybiskup:
+
+Prosimy Cię, Boże, przyjmij nasze modlitwy za wstawiennictwem Najświętszej Maryi Panny i Wszystkich Świętych i spraw, aby ten budynek, który Tobie po święcamy, stał się domem zbawienia i łaski. Niech lud chrześcijański, który tutaj się gromadzi, uwielbia Cię w duchu i prawdzie i wzrasta w miłości. Przez Chrystusa, Pana naszego.
+
+W: Amen.
+
+
+
+### MODLITWA POŚWIĘCENIA
+
+Ksiądz Arcybiskup:
+
+Boże, Ty uświęcasz swój Kościół i nim kierujesz, uroczyście wielbimy Twoje Imię, ponieważ lud wierny pragnie dzisiaj poświęcić Tobie na zawsze ten dom modlitwy, w którym pobożnie cześć Tobie oddaje, a Ty oświecasz go swoim sło wem i karmisz łaską Twoich sakramentów.
+
+Ta świątynia jest znakiem misterium Kościoła, który Chrystus uświęcił Krwią
+
+swoją, aby był Jego Oblubienicą pełną chwały, Dziewicą jaśniejącą czystością wiary oraz Matką dającą życie mocą Ducha Świętego. Kościół święty, jest wybraną winnicą Pana, która cały świat obejmuje swoimi gałązkami, mocą krzyża podnosi swoje słabe dzieci i wprowadza do Królestwa niebieskiego.
+
+Kościół szczęśliwy, jest mieszkaniem Boga z ludźmi, przybytkiem świętym zbu dowanym z żywych kamieni, stojącym na fundamencie Apostołów, na kamieniu węgielnym, którym jest sam Jezus Chrystus.
+
+Kościół wspaniały, jest miastem położonym na górze, widocznym dla wszyst kich, w nim bowiem jaśnieje odwieczne światło Baranka i rozbrzmiewa wdzięcz ny śpiew błogosławionych.
+
+Dlatego pokornie Prosimy Cię, Panie, ześlij pełnię błogosławieństwa na ten ko
+
+ściół i ołtarz, aby zawsze były miejscem świętym i stołem przygotowanym do
+
+składania Chrystusowej Ofiary.
+
+Niech tutaj zdroje łask zmywają ludzkie winy, aby dzieci Twoje, Ojcze, umarłe dla grzechu, rodziły sie na nowo do życia Bożego. Niech Twoi wierni, zgroma dzeni wokół ołtarza, sprawują pamiątkę Paschy i posilają sie przy stole słowa i Ciała Pańskiego.
+
+Niech wznosi się tutaj miła Tobie ofiara chwały, a głos ludzi, złączony ze śpiewem Aniołów, niech rozbrzmiewa w nieustannej modlitwie za zbawienie świata. Nie chaj tutaj ubodzy znajdują miłosierdzie, uciśnieni prawdziwą wolność, a wszy
+
+scy ludzie niech przyoblekają sie w godność Twoich dzieci, aż osiągną szczęśli wie radość życia wiecznego w niebieskim Jeruzalem. Przez naszego Pana Jezusa Chrystusa, Twojego Syna, który z Toba żyje i króluje w jedności Ducha Świętego, Bóg przez wszystkie wieki wieków.
+
+W: Amen.
+
+
+
+### NAMASZCZENIE OŁTARZA I ŚCIAN KOŚCIOŁA
+
+Ksiądz Arcybiskup:
+
+Niech Bóg swoją mocą uświęci ten ołtarz i kościół, który namaszczamy jako Jego słudzy, aby wyrażały tajemniczy związek Chrystusa i Kościoła.
+
+*Ksiądz Arcybiskup wylewa święte Krzyżmo na środek ołtarza i na jego cztery rogi. Następnie namaszcza ściany kościoła znacząc dwanaście krzyży odpowiednio rozmieszczonych.*
+
+*W tym czasie chór śpiewa:*
+
+TODO: Druga książeczka str. 13
+
+TODO: pieść "Ludu kapłański"
+
+
+
+
+
