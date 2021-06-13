@@ -57,3 +57,94 @@ Wszechmogący, wieczny Boże, ześlij na to miejsce swoją łaskę i udziel pomo
 
 W: Amen.
 
+
+
+## LITURGIA SŁOWA
+
+### PIERWSZE CZYTANIE
+
+Ne 8, 2-4a. 5-6. 8-10
+
+Czytanie z Księgi Nehemiasza
+
+Kapłan Ezdrasz przyniósł Prawo przed zgromadzenie, w którym uczestniczyli nie tylko mężczyźni, lecz także kobiety oraz wszyscy inni, którzy byli w stanie je zrozumieć. I czytał z tej księgi, zwrócony do placu znajdującego się przed Bramą Wodną, od rana aż do południa przed mężczyznami, kobietami i tymi, którzy rozumieli; a uszy całego ludu były zwrócone ku księdze Prawa.
+
+Pisarz Ezdrasz stanął na drewnianym podwyższeniu, które zrobiono w tym celu. Ezdrasz otworzył księgę na oczach całego ludu, znajdował się bowiem wyżej niż cały lud; a gdy ją otworzył, cały lud się podniósł. I Ezdrasz błogosławił Pana, wielkiego Boga, a cały lud podnosząc ręce swoje, odpowiedział: ! Amen!»> Potem oddali pokłon i padli przed Panem na kolana, twar Czytano więc z tej księgi, księgi Prawa Bożego, dobitnie, nia, tak że lud rozumiał czytanie. Wtedy Nehemiasz, to jest. Remi. jaśnie oraz ka Testn płan-pisarz Ezdrasz, jak i lewici, którzy pouczali lud, rzekli do całego ludu: «Ten dzień jest poświęcony Panu, Bogu waszemu. Nie bądźcie smutni i nie płaczcie!>> Cały lud bowiem płakał, gdy usłyszał słowa Prawa. I rzekł im Nehemiasz: «Idź cie, spożywajcie potrawy świąteczne i pijcie słodkie napoje, poślijcie też porcje temu, który nic gotowego nie ma: albowiem poświęcony jest ten dzień Panu naszemu. A nie bądźcie przygnębieni, gdyż radość w Panu jest waszą ostoją>>.
+
+Oto słowo Boże.
+
+W: Bogu niech będą dzięki.
+
+
+
+### PSALM RESPONSORYJNY
+
+Ps 119(118), 129-130. 132-133. 135 i 144
+
+Refren: Światłem stóp moich jest Twe słowo, Panie.
+
+Twoje napomnienia są przedziwne, *
+
+dlatego przestrzega ich moja dusza.
+
+Poznanie Twoich słów oświeca
+
+i naucza niedoświadczonych. Refren: Światłem stóp moich jest Twe słowo, Panie.
+
+Zwróć się do mnie i zmiłuj się nade mną, * tak jak czynisz z miłującymi Twe imię.
+
+Umocnij moje kroki Twoim słowem,
+
+niech nie panuje we mnie żadna niegodziwość.
+
+Refren: Światłem stóp moich jest Twe słowo, Panie.
+
+Okaż Twemu słudze światło swego oblicza * i naucz mnie Twoich ustaw. Wieczna jest sprawiedliwość Twych napomnień, * daj mi je zrozumieć, a żyć będę.
+
+Refren: Światłem stóp moich jest Twe słowo, Panie.
+
+
+
+### DRUGIE CZYTANIE
+
+TODO: mała książeczka str 9
+
+W: Bogu niech będą dzięki.
+
+
+
+### ŚPIEW PRZED EWANGELIĄ
+
+Mt 16, 18
+
+Aklamacja: Alleluja, Alleluja, Alleluja
+
+Ty jesteś Piotr - Opoka
+
+i na tej opoce zbuduję mój Kościół,
+a bramy piekielne go nie przemogą. 
+
+Aklamacja: Alleluja, Alleluja, Alleluja
+
+
+
+### EWANGELIA
+
+Dzisiaj zbawienie stało się udziałem tego domu
+
+TODO: mała książeczka str 10
+
+Diakon: Pan z wami.
+
+W: I z duchem twoim.
+
+Diakon: Słowa Ewangelii według TODO
+
+W: Chwała Tobie, Panie.
+
+TODO ewangelia jw
+
+Oto słowo Pańskie.
+
+W: Chwała Tobie, Chryste.
+
