@@ -148,3 +148,84 @@ Oto słowo Pańskie.
 
 W: Chwała Tobie, Chryste.
 
+
+
+## HOMILIA
+
+Ksiądz Arcybiskup wygłasza homilię.
+
+
+
+## WYZNANIE WIARY
+
+Wierzę w jednego Boga, Ojca wszechmogącego, Stworzyciela nieba i ziemi, * * wszystkich rzeczy widzialnych i niewidzialnych. * I w jednego Pana Jezusa Chrystusa, Syna Bożego Jednorodzonego, który z Ojca jest zrodzony przed wszystkimi wiekami. * Bóg z Boga, * Światłość ze Światłości. Bóg prawdziwy z Boga prawdziwego.* Zrodzony, a nie stworzony, *współistotny Ojcu, a przez Niego wszystko się stało. * On to dla nas, ludzi, * i dla naszego zbawienia *zstąpił z nieba. * I za sprawą Ducha Świętego przyjął ciało z Maryi Dziewicy i stał się człowiekiem. * Ukrzyżowany również za nas, pod Poncjuszem Piłatem został umęczony i pogrzebany. I zmartwychwstał trzeciego dnia, ja oznajmia Pismo. * I wstąpił do nieba; * siedzi po prawicy Ojca. I powtórnie yjdzie w chwa le sądzić żywych i umarłych: * a królestwu Jego nie będz ońca. * Wierzę w Ducha Świętego, Pana i Ożywiciela, który od Ojca i Syna chodzi. * Który z Ojcem i Synem wspólnie odbiera uwielbienie i chwałę; * kry mówił przez proroków. * Wierzę w jeden, święty, powszechny i apostolski Kościół. Wyznaję jeden chrzest * na odpuszczenie grzechów. * I oczekuję wskrzeszenia umarłych * i życia wiecznego w przyszłym świecie. Amen.
+
+
+
+### MODLITWA POŚWIĘCENIA I NAMASZCZENIE
+
+Ksiądz Arcybiskup:
+
+Módlmy sie, najmilsi, do Boga Ojca Wszechmogącego, który przemienia serca wiernych w duchowe świątynie dla siebie; nasze zaś prośby niech wspiera bra terska modlitwa Świętych.
+
+*Organista śpiewa litanię, a wszyscy w postawie stojącej odpowiadają:*
+
+
+
+Panie, zmiłuj się nad nami.	Panie, zmiłuj się nad nami.
+Chryste, zmiłuj się nad nami.	Chryste, zmiłuj się nad nami.
+Panie, zmiłuj się nad nami.	Panie, zmiłuj się nad nami.
+
+Święta Maryjo, Matko Boża,	módl się za nami.
+Święci Michale,	módl się za nami.
+Święci Aniołowie Boży,	módlcie się za nami.
+Święty Janie Chrzcicielu,	módl się za nami.
+Święty Józefie,	módl się za nami.
+Święci Piotrze i Pawle,	módlcie się za nami.
+Święty Andrzeju,	módl się za nami.
+Święci Janie,	módl się za nami.
+Święta Mario Magdaleno,	módl się za nami.
+Święty Szczepanie,	módl się za nami.
+Święty Ignacy Antiocheński,	módl się za nami.
+Święty Wawrzyńcze,	módl się za nami.
+Święty Wojciechu i Stanisławie,	módlcie się za nami.
+Święty Andrzeju Bobolo, módl się za nami,
+Święte Perpetuo i Felicyto,	módlcie się za nami.
+Święta Agnieszko,	módl się za nami.
+Święty Grzegorzu,	módl się za nami.
+Święty Janie Pawle, módl się za nami.
+Święty Augustynie,	módl się za nami.
+Święty Atanazy,	módl się za nami.
+Święty Bazyli,	módl się za nami.
+Święty Marcinie,	módl się za nami.
+Święty Benedykcie,	módl się za nami.
+Święci Franciszku i Dominiku,	módlcie się za nami.
+Święty Jacku,	módl się za nami.
+Święty Franciszku Ksawery,	módl się za nami.
+Święty Janie Mario Vianneyu,	módl się za nami.
+Święta Katarzyno Sieneńska,	módl się za nami.
+Święta Tereso od Jezusa,	módl się za nami.
+Święta Faustyno,	módl się za nami.
+Święci Hiacynto i Franciszku,	módlcie się za nami.
+Błogosławiona Anielo Salawo,	módl się za nami.
+
+Bądź nam miłościw,	wybaw nas, Panie.
+Od zła wszelkiego,	wybaw nas, Panie.
+Od każdego grzechu,	wybaw nas, Panie.
+Od śmierci wiecznej,	wybaw nas, Panie.
+Przez Twoje Wcielenie,	wybaw nas, Panie.
+Przez Twoją Śmierć i Zmartwychwstanie,	wybaw nas, Panie.
+Przez zesłanie Ducha Świętego,	wybaw nas, Panie.
+
+Prosimy Cię, my grzesznicy,	wysłuchaj nas, Panie.
+Prosimy Cię, abyś Ojca Świętego i całe duchowieństwo zachował w prawdziwej pobożności,	wysłuchaj nas, Panie.
+Prosimy Cię, abyś wszystkim narodom dał pokój i prawdziwą zgodę,	wysłuchaj nas, Panie.
+Prosimy Cię, abyś nas samych utwierdził i zachował w swojej świętej służbie,	wysłuchaj nas, Panie.
+Prosimy Cię, abyś ten kościół konsekrował,	wysłuchaj nas, Panie.
+Prosimy Cię, Jezu, Synu Boga żywego,	wysłuchaj nas, Panie.
+
+Chryste, usłysz nas.	Chryste, usłysz nas.
+Chryste, wysłuchaj nas.	Chryste, wysłuchaj nas.
+
+
+
