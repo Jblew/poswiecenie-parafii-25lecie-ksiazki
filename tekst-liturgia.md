@@ -4,7 +4,99 @@
 
 *Ksiądz Arcybiskup Józef Górzyński wraz z koncelebrującymi prezbiterami udaje się procesjonalnie z plebanii przez nawę główną do prezbiterium. W tym czasie chór śpiewa:* 
 
-TODO: wstawić Gaude Mater  
+Gaude, mater Polonia,
+prole fecunda nobili.
+Summi Regis magnalia
+laude frequenta vigili.
+Cuius benigna gratia
+Stanislai Pontificis
+passionis insignia
+signis fulgent mirificis.
+Hic certans pro iustitia,
+Regis non cedit furiae:
+Stat pro plebis iniuria
+Christi miles in acie.
+Tyranni truculentiam,
+Qui dum constanter arguit,
+Martyrii victoriam
+Membratim caesus meruit.
+Novum pandit miraculum
+Splendor in sancto cernitus,
+Redintegrat corpusculum
+Sparsum caelestis medicus.
+Sic Stanislaus pontifex
+Transit ad caeli curiam,
+Ut apud Deum opifex
+Nobis imploret veniam.
+Poscentes eius merita,
+Salutis dona referunt:
+Morte praeventi subita
+Ad vitae potum redeunt.
+Cuius ad tactum anuli
+Morbi fugantur turgidi:
+Ad locum sancti tumuli
+Multi curantur languidi.
+Surdis auditus redditur,
+Claudis gressus officium,
+Mutorum lingua solvitur
+Et fugatur daemonium.
+Ergo, felix Cracovia,
+Sacro dotata corpore
+Deum, qui fecit omnia,
+Benedic omni tempore.
+Sit Trinitati gloria,
+Laus, honor, iubilatio:
+De Martyris victoria
+Sit nobis exsultatio.
+Amen
+
+
+
+Raduj się, Matko-Polsko,
+w sławne potomstwo płodna!
+Króla królów i najwyższego Pana wielkość
+Uwielbiaj chwałą przynależną.
+Albowiem z Jego łaskawości
+Biskupa Stanisława męki
+Niezmierne, jakie on wycierpiał,
+Jaśnieją cudownymi znaki.
+Potykał się za sprawiedliwość,
+Przed gniewem króla nie ustąpił:
+I staje żołnierz Chrystusowy
+Za krzywdę ludu sam do walki.
+Ponieważ stale wypominał
+On okrucieństwo tyranowi,
+Koronę zdobył męczennika,
+Padł posiekany na kawałki.
+Niebiosa nowy cud zdziałały,
+Bo mocą swą Niebieski Lekarz
+Poćwiartowane jego ciało
+Przedziwne znowu w jedno złączył.
+Tak to Stanisław biskup przeszedł
+W przybytki Króla niebieskiego,
+Aby u Boga Stworzyciela
+Nam wyjednać przebaczenie.
+Gdy kto dla zasług jego prosi,
+Wnet otrzymuje zbawcze dary:
+Ci, co pomarli nagłą śmiercią,
+Do życia znowu powracają.
+Choroby wszelkie pod dotknięciem
+Pierścienia jego uciekają,
+Przy jego świętym grobie zdrowie
+Niemocnych wielu odzyskuje.
+Słuch głuchym bywa przywrócony
+A chromy kroki stawia raźno,
+Niemowom język się rozwiązał,
+W popłochu szatan precz ucieka.
+A przeto szczęsny ty, Krakowie,
+Uposażony świętym ciałem,
+Błogosław po wsze czasy Boga,
+Który z niczego wszystko stworzył.
+Niech Trójcy Przenajświętszej zabrzmi
+Cześć, chwała, sława, uwielbienie,
+A nam tryumfy męczennika
+Niech wyjednają radość wieczną.
+Amen
 
 Ksiądz Arcybiskup: W imię Ojca i Syna i Ducha Świętego
 
@@ -34,9 +126,27 @@ W: Amen.
 
 *Ksiądz Arcybiskup kropi wodą lud. W tym czasie chór śpiewa.* 
 
-TODO: Przez Chrztu Świętego wielki dar
+1. Przez chrztu świętego wielki dar,
+   o Chryste, z Twej hojności.
+   Twym dzieciom wiary dałeś
+   skarb – nadziei i miłości.
+2. Ref. Najświętszej Trójcy wieczną cześć
+   pragniemy z serc gorących nieść:
+   strzec wiary ślubujemy,
+   w niej żyć, umierać chcemy.
+3. Z wyznawców Twoich wiernych rzesz
+   Swój Kościół tworzysz w świecie,
+   W Ojczyźnie naszej władasz też
+   przez długie tysiąclecie.
+4. Ref. Najświętszej Trójcy wieczną cześć
+   pragniemy z serc gorących nieść:
+   strzec wiary ślubujemy,
+   w niej żyć, umierać chcemy.
 
-Ksiądz Arcybiskup: Niech Bóg, Ojciec miłosierdzia, + łaską Ducha Świętego oczyści żywą świątynię, którą my jesteśmy.
+
+
+*Ksiądz Arcybiskup:*
+Niech Bóg, Ojciec miłosierdzia, + łaską Ducha Świętego oczyści żywą świątynię, którą my jesteśmy.
 
 W: Amen.
 
@@ -46,7 +156,33 @@ W: Amen.
 
 Organista śpiewa wraz z ludem hymn:
 
-TODO: „Chwała na wysokości"
+Chwała na wysokości Bogu
+a na ziemi pokój ludziom dobrej woli.
+Chwalimy Cię,
+Błogosławimy Cię,
+Wielbimy Cię.
+Wysławiamy Cię.
+Dzięki Ci składamy,
+bo wielka jest chwała Twoja.
+Panie Boże, Królu nieba,
+Boże Ojcze wszechmogący.
+Panie, Synu Jednorodzony,
+Jezu Chryste.
+Panie Boże, Baranku Boży,
+Synu Ojca.
+Który gładzisz grzechy świata,
+zmiłuj się nad nami.
+Który gładzisz grzechy świata,
+przyjm błaganie nasze.
+Który siedzisz po prawicy Ojca,
+zmiłuj się nad nami.
+Albowiem tylko Tyś jest święty.
+Tylko Tyś jest Panem.
+Tylko Tyś Najwyższy,
+Jezu Chryste.
+Z Duchem Świętym
+w chwale Boga Ojca.
+Amen
 
 
 
@@ -84,22 +220,23 @@ Ps 119(118), 129-130. 132-133. 135 i 144
 Refren: Światłem stóp moich jest Twe słowo, Panie.
 
 Twoje napomnienia są przedziwne, *
-
 dlatego przestrzega ich moja dusza.
-
 Poznanie Twoich słów oświeca
+i naucza niedoświadczonych. 
 
-i naucza niedoświadczonych. Refren: Światłem stóp moich jest Twe słowo, Panie.
+Refren: Światłem stóp moich jest Twe słowo, Panie.
 
-Zwróć się do mnie i zmiłuj się nade mną, * tak jak czynisz z miłującymi Twe imię.
-
+Zwróć się do mnie i zmiłuj się nade mną, *
+tak jak czynisz z miłującymi Twe imię.
 Umocnij moje kroki Twoim słowem,
-
 niech nie panuje we mnie żadna niegodziwość.
 
 Refren: Światłem stóp moich jest Twe słowo, Panie.
 
-Okaż Twemu słudze światło swego oblicza * i naucz mnie Twoich ustaw. Wieczna jest sprawiedliwość Twych napomnień, * daj mi je zrozumieć, a żyć będę.
+Okaż Twemu słudze światło swego oblicza *
+i naucz mnie Twoich ustaw.
+Wieczna jest sprawiedliwość Twych napomnień, *
+daj mi je zrozumieć, a żyć będę.
 
 Refren: Światłem stóp moich jest Twe słowo, Panie.
 
@@ -107,7 +244,13 @@ Refren: Światłem stóp moich jest Twe słowo, Panie.
 
 ### DRUGIE CZYTANIE
 
-TODO: mała książeczka str 9
+*1Kor 3, 9b-11. 16-17*
+
+**Czytanie z Pierwszego listu świętego Pawła Apostoła do Koryntian**
+
+Bracia: Jesteście Bożą budowlą. Według danej mi łaski Bożej, jako roztropny budowniczy, położyłem fundament, ktoś inny zaś wznosi budynek. Niech każdy jednak baczy na to, jak buduje. Fundamentu bowiem nikt nie może położyć innego, jak ten, który jest położony, a którym jest Jezus Chrystus.
+Czyż nie wiecie, żeście świątynią Boga i że Duch Boży mieszka w was? Jeżeli ktoś zniszczy świątynię Boga, tego zniszczy Bóg. Świątynia Boga jest świętą, a wy nią jesteście.
+**Oto słowo Boże.**
 
 W: Bogu niech będą dzięki.
 
@@ -115,12 +258,9 @@ W: Bogu niech będą dzięki.
 
 ### ŚPIEW PRZED EWANGELIĄ
 
-Mt 16, 18
-
 Aklamacja: Alleluja, Alleluja, Alleluja
 
 Ty jesteś Piotr - Opoka
-
 i na tej opoce zbuduję mój Kościół,
 a bramy piekielne go nie przemogą. 
 
@@ -130,19 +270,17 @@ Aklamacja: Alleluja, Alleluja, Alleluja
 
 ### EWANGELIA
 
-Dzisiaj zbawienie stało się udziałem tego domu
+*Mt 16, 13-19*
 
-TODO: mała książeczka str 10
-
-Diakon: Pan z wami.
+*Diakon:* Pan z wami.
 
 W: I z duchem twoim.
 
-Diakon: Słowa Ewangelii według TODO
+*Diakon:* Słowa Ewangelii według świętego Mateusza
 
 W: Chwała Tobie, Panie.
 
-TODO ewangelia jw
+Gdy Jezus przyszedł w okolice Cezarei Filipowej, pytał swych uczniów: «Za kogo ludzie uważają Syna Człowieczego?»  A oni odpowiedzieli: «Jedni za Jana Chrzciciela, inni za Eliasza, jeszcze inni za Jeremiasza albo za jednego z proroków». Jezus zapytał ich: «A wy za kogo Mnie uważacie?» Odpowiedział Szymon Piotr: «Ty jesteś Mesjasz, Syn Boga żywego». Na to Jezus mu rzekł: «Błogosławiony jesteś, Szymonie, synu Jony. Albowiem nie objawiły ci tego ciało i krew, lecz Ojciec mój, który jest w niebie. Otóż i Ja tobie powiadam: Ty jesteś Piotr [czyli Skała], i na tej Skale zbuduję Kościół mój, a bramy piekielne go nie przemogą. I tobie dam klucze królestwa niebieskiego; cokolwiek zwiążesz na ziemi, będzie związane w niebie, a co rozwiążesz na ziemi, będzie rozwiązane w niebie».
 
 Oto słowo Pańskie.
 
@@ -277,9 +415,117 @@ Niech Bóg swoją mocą uświęci ten ołtarz i kościół, który namaszczamy j
 
 *W tym czasie chór śpiewa:*
 
-TODO: Druga książeczka str. 13
+1. Ref. Święty jest dom Pański, do Boga należy.
+2. Jak miłe są Twoje przybytki,
+   Panie Zastępów!
+   Dusza moja stęskniona pragnie przedsionków Pańskich
+   Serce moje i ciało radośnie wołają do Boga żywego.
+3. Ref: Święty jest dom Pański, do Boga należy.
+4. Nawet wróbel znajduje swój dom, a jaskółka gniazdo+
+   gdzie złoży swe pisklęta\*
+   przy ołtarzach Twoich, Panie zastępów, Królu mój i Boże!
+   Szczęśliwi, którzy mieszkają w domu Twoim Panie\*
+   nieustannie Cie wielbiąc.
+5. Ref: Święty jest dom Pański, do Boga należy.
+6. Szczęśliwi, których moc jest w Tobie,\*
+   którzy zachowują ufność w swym sercu.
+   Przechodząc sucha doliną, w źródła ją zamieniają\*
+   a wczesny deszcz błogosławieństwem ją okryje.
+7. Ref: Święty jest dom Pański, do Boga należy.
+8. Mocy im będzie przybywać\*
+   ujrzą na Syjonie Boga nad bogami.
+   Panie Zastępów, usłysz modlitwę moją,\*
+   nakłoń ucho, Boże Jakuba.
+9. Ref: Święty jest dom Pański, do Boga należy.
+10. Spójrz, Boże, nasza tarczo,\*
+    wejrzyj na oblicze Twego Pomazańca.
+    Doprawdy, dzień jeden w przybytkach Twoich*
+     lepszy jest niż innych tysiące.
+11. Ref: Święty jest dom Pański, do Boga należy
+12. Wolę stanąć w progu mojego Boga\*
+    niż mieszkać w namiotach grzeszników.
+    Bo Pan Bóg jest słońcem i tarczą+
+    On hojnie darzy łaską i chwałą\*
+    nie odmawia dobrodziejstw żyjącym nienagannie.
+13. Ref: Święty jest dom Pański, do Boga należy.
 
-TODO: pieść "Ludu kapłański"
+
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+1. Tobie śpiewamy, o Synu umiłowany Ojca.
+Uwielbiamy Cię, Mądrości przedwieczna,
+Żywe Słowo Boga.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+2. Tobie śpiewamy, jedyny Synu Maryi Panny.
+Uwielbiamy Cię, Chrystusie, nasz Bracie.
+Tyś nas przyszedł zbawić.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+3. Tobie śpiewamy, Mesjaszu przyjęty przez ubogich.
+Uwielbiamy Cię, o Chryste, nasz Królu
+Cichy i pokorny.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+4. Tobie śpiewamy, jedyny Pośredniku ludzkości.
+Uwielbiamy Cię, o Prawdo i Życie,
+Drogo nas wiodąca.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+5. Tobie śpiewamy, Arcykapłanie w Nowym Przymierzu.
+Uwielbiamy Cię, o Boże pokoju
+Przez krew Twego Krzyża.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+6. Tobie śpiewamy, ożywcze Źródło dające łaskę.
+Uwielbiamy Cię, bo gasisz pragnienie,
+Żywa Wodo, Chryste.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+7. Tobie śpiewamy, o winny Szczepie przez Ojca dany.
+Uwielbiamy Cię, o Krzewie ożywczy,
+My Twe latorośle.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+8. Tobie śpiewamy, prawdziwa Manno dająca życie.
+Uwielbiamy Cię, o Chlebie żyjący,
+Któryś zstąpił z nieba.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
+
+9. Tobie śpiewamy, Pasterzu wiodący do Królestwa.
+Uwielbiamy Cię, bo w jedno zgromadzasz
+Wszystkie owce Twoje.
+
+Ref. Ludu kapłański, ludu królewski,
+Zgromadzenie święte, ludu Boży,
+Śpiewaj Twemu Panu!
 
 
 
@@ -353,7 +599,13 @@ nabierz odwagi i oczekuj Pana.
 
 Antyfona: Pan moim światłem i zbawieniem moim.
 
-TODO: pieśń Panie Tyś jest światłością mej duszy
+
+
+Jezu Tyś jest światłością mej duszy
+Niech ciemność ma nie przemawia do mnie już
+
+Jezu Tyś jest światłością mej duszy 
+Daj mi moc przyjąć dziś miłość Twą
 
 
 
@@ -363,7 +615,15 @@ TODO: pieśń Panie Tyś jest światłością mej duszy
 
 *Podczas procesji z darami chór śpiewa pieśń:*
 
-TODO: z rąk kapłańskich
+1. Z rąk kapłańskich przyjmij Panie
+Tę ofiarę chleba wina 
+Co się wkrótce dla nas stanie
+Krwią i Ciałem Twego Syna.
+
+2. Niech przestępstwa nasze zmywa 
+I uśmierza gniew Twój Panie
+Niech nas z niebem pojednywa 
+I uzyska przebłaganie.
 
 
 
@@ -589,41 +849,50 @@ Gdzie wybranym miejsce przygotował Bóg.
 
 
 1. Bądźże pozdrowiona, Hostio żywa, 
-  W której Jezus Chrystus Bóstwo ukrywa! 
+    W której Jezus Chrystus Bóstwo ukrywa! 
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 
 2. Bądźże pozdrowione, drzewo żywota! 
-  Niech kwitnie niewinność, anielska cnota.
+    Niech kwitnie niewinność, anielska cnota.
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 3. Bądźże pozdrowiony Baranku Boży! 
-  Zbaw nas, gdy miecz Pański na złych się sroży!
+    Zbaw nas, gdy miecz Pański na złych się sroży!
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 4. Bądźże pozdrowiony Anielski Chlebie! 
-  W tym tu Sakramencie wielbimy Ciebie! 
+    W tym tu Sakramencie wielbimy Ciebie! 
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 5. Bądźże pozdrowiona, święta Krynico! 
-  Serce Przenajświętsze, łaski Świątnico!
+    Serce Przenajświętsze, łaski Świątnico!
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 6. Bądźże pozdrowiony, Boski Kapłanie! 
-  Przyjm nasze ofiary, usłysz błaganie.
+    Przyjm nasze ofiary, usłysz błaganie.
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 7. Bądźże pozdrowiona, żywa Ofiaro! 
-  Broń nas przed doczesną i wieczną karą!
+    Broń nas przed doczesną i wieczną karą!
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 8. Bądźże pozdrowiony, Dobry Pasterzu! 
-  Tyś dał duszę swoją za nas na krzyżu!
+    Tyś dał duszę swoją za nas na krzyżu!
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 9. Bądźże pozdrowiony, wszechmocny Boże! 
-  Już Cię kocham szczerze, jak serce może!
+    Już Cię kocham szczerze, jak serce może!
   1. Witaj, Jezu, Synu Maryi,
+
     Tyś jest Bóg prawdziwy w świętej Hostii!
 
 
