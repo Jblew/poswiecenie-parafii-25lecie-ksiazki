@@ -4,11 +4,15 @@ Str.1 - akapit 2 - zdj. 1996 sty.jpg - załącznik
 
 ​    \- akapit 3 - zdj. kościoła w skansenie - kronika 1995-1996 str. 16
 
+
+
 ​    \- akapit 4 - zdj. 1996.jpg - załącznik
 
 ​            \- zdj. konstrukcji ścian - kronika 1995-1996 str. 27, dolne
 
 ​            \- zdj. a (7)1.jpg - załącznik
+
+
 
 ​    \- akapit 5 - zdj. a (8)1.jpg - załącznik
 
